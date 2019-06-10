@@ -1,3 +1,3 @@
 Smiley face:
 
-I love balloon emogi:!
+I love balloon:!
